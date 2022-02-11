@@ -1,5 +1,5 @@
 # Purple in your area!
-Justice, humanity, and peace will soon be embrace by the world.
+Justice, humanity, and peace will soon be embraced by the world.
 
 📚 I am currently a first year Computer Science Student at West Visayas State University.
 
